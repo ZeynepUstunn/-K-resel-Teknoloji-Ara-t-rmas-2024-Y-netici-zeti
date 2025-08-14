@@ -1,0 +1,1 @@
+# -K-resel-Teknoloji-Ara-t-rmas-2024-Y-netici-zeti
